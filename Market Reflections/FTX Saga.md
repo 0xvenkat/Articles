@@ -1,5 +1,5 @@
 # Crypto’s Biggest Scam: The FTX- SBF Implosion 
-
+#### Published Dec 2022
 ### Introduction
 After the dramatic collapse of ‘Crypto’s Golden boy’, Altruistic Vegan Billionaire, Sam Bankman-Fried, US senators resonated sentiments around the world with a letter that read: 
 “FTX, a cryptocurrency exchange, has made it abundantly clear that the digital asset industry has serious problems. 
