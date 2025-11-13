@@ -1,5 +1,5 @@
 # The First Mooner: Where It All Began
-Everyone has that one project, the Mooner, the one that flipped their switch and made them an onchain degenerate. 
+Everyone has that one project,  the one that flipped their switch and made them an onchain degenerate. 
 Where the r/r was absurd but somehow, it absolutely cooked. 
 It was the start of something deeper, a wild ride through the trenches hunting gems. 
 You never forget your first mooner.
